@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [https://dev.to/ellenaokpani](https://dev.to/ellenaokpani)
 
-- 📫 How to reach me **ellenaokpani**
+- 📫 How to reach me **ellenaokpani@gmail.com**
 
 - ⚡ Fun fact **I'm Love Games**
 
